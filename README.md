@@ -3,4 +3,4 @@
 
 - Let's
 - Get 
-- It
+- It!
